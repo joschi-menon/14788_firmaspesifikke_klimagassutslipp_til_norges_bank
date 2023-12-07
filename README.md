@@ -1,0 +1,2 @@
+# 14788_firmaspesifikke_klimagassutslipp_til_norges_bank
+ 
